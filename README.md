@@ -1,3 +1,3 @@
-# rananjayexports
+# opal wholsale jewelry
 Opal is like a world of wonder that holds a tremendous intangible value, which is not measurable in terms of its characteristics. There are so many aspects of Opal that will leave you gazing at its natural elements. The beautiful color play and qualities of various opals are immense and timeless in their way. The Opal jewelry looks enticing when combined in 925 sterling silver material, and Rananjay exports is well versed in keeping up the quality and authenticity of a variety of opals. Be it opal ring, pendant, bracelet, or necklace, they are beautifully designed to fulfill your wholesale jewelry quest.
 https://www.rananjayexports.com/gemstones/opal
